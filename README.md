@@ -1,0 +1,1 @@
+# omdena-earthquake-school-map
